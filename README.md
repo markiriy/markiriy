@@ -1,5 +1,5 @@
-![цитата про кофе История Instagram, вконтакте для кофейни, блоггера, стилиста, дизайнера в минималистичном стиле](https://github.com/markiriy/markiriy/assets/124806098/7fdb2afe-f89e-424a-9118-ce0da3a03206)
-
+### Hi! I like coding and coffee☕
+![618f083c61a7460ce0a6064319af41bd](https://github.com/markiriy/markiriy/assets/124806098/3a133088-081a-4fe8-ac66-fe2232afdaac)
 <!--
 **markiriy/markiriy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
