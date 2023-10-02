@@ -1,4 +1,3 @@
-### Hi! I like coding and coffee☕
 ![618f083c61a7460ce0a6064319af41bd](https://github.com/markiriy/markiriy/assets/124806098/fad0c676-dbf1-4c67-86fa-af902db1e94a)
 
 <!--
